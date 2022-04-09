@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nari12333
 - 👀 I’m interested in comedic , ASMR , Gacha Club contents ...
 - 🌱 I’m currently learning in school :))
-- 💞️ I’m looking to collaborate on ... uh idnk 
+- 💞️ I’m looking for friends online bc I'm boredddd I want sum friends okayyyyy ?
 - 📫 How to reach me taller ?? TT‿TT
 
 <!---
