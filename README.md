@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @nari12333
-- 👀 I’m interested in comedic , ASMR , Gacha Club contents ...
-- 🌱 I’m currently learning in school :))
-- 💞️ I’m looking for friends online bc I'm boredddd I want sum friends okayyyyy ?
-- 📫 How to reach me taller ?? TT‿TT
-
+🌾—[Hi everyone]🎑
+I'm Phùng Mai Anh, just call me Nari (if you want but I totally recommend calling me Nari)
+I like ducks
+I'm a female
 <!---
-nari12333/nari12333 is a ✨ (un)special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+nari12333/nari12333 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
